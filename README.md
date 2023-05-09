@@ -1,6 +1,6 @@
-# Olá, Sir Thiago Leal a vossa disposiçã  :shipit:i
+# Olá, Sir Thiago Leal a vossa disposiçã  :shipit:
 
-#desenvolvimentoweb, #informática, #música, #tecnologia 
+#desenvolvimentoweb, #informática, #música, #tecnologia
 
 ## Atualmente trabalhando com estofados em geral, mas com o foco primário em tecnologia, em especial por desenvolvimento de sofwares.
 
