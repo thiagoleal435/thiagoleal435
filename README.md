@@ -1,4 +1,4 @@
-# Olá, Sir Thiago Leal a vossa disposiçã  :shipit:
+# Olá, Sir Thiago Leal a vossa disposição :shipit:
 
 #desenvolvimentoweb, #informática, #música, #tecnologia
 
